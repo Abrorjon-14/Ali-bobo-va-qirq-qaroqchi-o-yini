@@ -1,0 +1,1 @@
+# Ali-bobo-va-qirq-qaroqchi-o-yini
